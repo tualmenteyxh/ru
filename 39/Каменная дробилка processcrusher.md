@@ -411,4 +411,14 @@ why are ores crushed.Copper Mining and Processing: Processing of Copper Ores.Cop
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=%D0%9A%D0%B0%D0%BC%D0%B5%D0%BD%D0%BD%D0%B0%D1%8F+%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0+processcrusher)
 
-{{links}}
+* [Каменная дробильная машина ket](../38/%D0%9A%D0%B0%D0%BC%D0%B5%D0%BD%D0%BD%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D1%8C%D0%BD%D0%B0%D1%8F%20%D0%BC%D0%B0%D1%88%D0%B8%D0%BD%D0%B0%20ket.md)
+
+* [Скотч pawan mishra dadheech ajmer](../36/%D0%A1%D0%BA%D0%BE%D1%82%D1%87%20pawan%20mishra%20dadheech%20ajmer.md)
+
+* [Пилотная мельница Золотые горные дробилки](../38/%D0%9F%D0%B8%D0%BB%D0%BE%D1%82%D0%BD%D0%B0%D1%8F%20%D0%BC%D0%B5%D0%BB%D1%8C%D0%BD%D0%B8%D1%86%D0%B0%20%D0%97%D0%BE%D0%BB%D0%BE%D1%82%D1%8B%D0%B5%20%D0%B3%D0%BE%D1%80%D0%BD%D1%8B%D0%B5%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8.md)
+
+* [nasuta gold mining ltd](../37/nasuta%20gold%20mining%20ltd.md)
+
+* [Мехта cad cam systems pvt ltd Пескорезные машины](../38/%D0%9C%D0%B5%D1%85%D1%82%D0%B0%20cad%20cam%20systems%20pvt%20ltd%20%D0%9F%D0%B5%D1%81%D0%BA%D0%BE%D1%80%D0%B5%D0%B7%D0%BD%D1%8B%D0%B5%20%D0%BC%D0%B0%D1%88%D0%B8%D0%BD%D1%8B.md)
+
+* [Использование машин для производства известняка](../38/%D0%98%D1%81%D0%BF%D0%BE%D0%BB%D1%8C%D0%B7%D0%BE%D0%B2%D0%B0%D0%BD%D0%B8%D0%B5%20%D0%BC%D0%B0%D1%88%D0%B8%D0%BD%20%D0%B4%D0%BB%D1%8F%20%D0%BF%D1%80%D0%BE%D0%B8%D0%B7%D0%B2%D0%BE%D0%B4%D1%81%D1%82%D0%B2%D0%B0%20%D0%B8%D0%B7%D0%B2%D0%B5%D1%81%D1%82%D0%BD%D1%8F%D0%BA%D0%B0.md)

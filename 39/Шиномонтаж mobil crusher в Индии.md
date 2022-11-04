@@ -270,4 +270,14 @@ About Us.We are high tech company integrating R&D,production and distribution,an
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=%D0%A8%D0%B8%D0%BD%D0%BE%D0%BC%D0%BE%D0%BD%D1%82%D0%B0%D0%B6+mobil+crusher+%D0%B2+%D0%98%D0%BD%D0%B4%D0%B8%D0%B8)
 
-{{links}}
+* [Дробильный шахтный музей](../37/%D0%94%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D1%8C%D0%BD%D1%8B%D0%B9%20%D1%88%D0%B0%D1%85%D1%82%D0%BD%D1%8B%D0%B9%20%D0%BC%D1%83%D0%B7%D0%B5%D0%B9.md)
+
+* [Расчет расчетного конвейера наклонного винта](../38/%D0%A0%D0%B0%D1%81%D1%87%D0%B5%D1%82%20%D1%80%D0%B0%D1%81%D1%87%D0%B5%D1%82%D0%BD%D0%BE%D0%B3%D0%BE%20%D0%BA%D0%BE%D0%BD%D0%B2%D0%B5%D0%B9%D0%B5%D1%80%D0%B0%20%D0%BD%D0%B0%D0%BA%D0%BB%D0%BE%D0%BD%D0%BD%D0%BE%D0%B3%D0%BE%20%D0%B2%D0%B8%D0%BD%D1%82%D0%B0.md)
+
+* [Трек premiertrak Щековая дробилка Испания](../37/%D0%A2%D1%80%D0%B5%D0%BA%20premiertrak%20%D0%A9%D0%B5%D0%BA%D0%BE%D0%B2%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20%D0%98%D1%81%D0%BF%D0%B0%D0%BD%D0%B8%D1%8F.md)
+
+* [Британская горнодобывающая компания Индонезия Бритминдо](../39/%D0%91%D1%80%D0%B8%D1%82%D0%B0%D0%BD%D1%81%D0%BA%D0%B0%D1%8F%20%D0%B3%D0%BE%D1%80%D0%BD%D0%BE%D0%B4%D0%BE%D0%B1%D1%8B%D0%B2%D0%B0%D1%8E%D1%89%D0%B0%D1%8F%20%D0%BA%D0%BE%D0%BC%D0%BF%D0%B0%D0%BD%D0%B8%D1%8F%20%D0%98%D0%BD%D0%B4%D0%BE%D0%BD%D0%B5%D0%B7%D0%B8%D1%8F%20%D0%91%D1%80%D0%B8%D1%82%D0%BC%D0%B8%D0%BD%D0%B4%D0%BE.md)
+
+* [Каменная дробилка Индонезийский агент из Китая](../39/%D0%9A%D0%B0%D0%BC%D0%B5%D0%BD%D0%BD%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20%D0%98%D0%BD%D0%B4%D0%BE%D0%BD%D0%B5%D0%B7%D0%B8%D0%B9%D1%81%D0%BA%D0%B8%D0%B9%20%D0%B0%D0%B3%D0%B5%D0%BD%D1%82%20%D0%B8%D0%B7%20%D0%9A%D0%B8%D1%82%D0%B0%D1%8F.md)
+
+* [Машина для добычи циркона opacifer](../37/%D0%9C%D0%B0%D1%88%D0%B8%D0%BD%D0%B0%20%D0%B4%D0%BB%D1%8F%20%D0%B4%D0%BE%D0%B1%D1%8B%D1%87%D0%B8%20%D1%86%D0%B8%D1%80%D0%BA%D0%BE%D0%BD%D0%B0%20opacifer.md)

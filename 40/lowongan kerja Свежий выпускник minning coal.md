@@ -361,4 +361,14 @@ Lowongan Kerja Untuk Admin Mining Coal.Lowongan Kerja PT Berau Coal Terbaru Mare
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=lowongan+kerja+%D0%A1%D0%B2%D0%B5%D0%B6%D0%B8%D0%B9+%D0%B2%D1%8B%D0%BF%D1%83%D1%81%D0%BA%D0%BD%D0%B8%D0%BA+minning+coal)
 
-{{links}}
+* [Индийский план процесса переработки](../38/%D0%98%D0%BD%D0%B4%D0%B8%D0%B9%D1%81%D0%BA%D0%B8%D0%B9%20%D0%BF%D0%BB%D0%B0%D0%BD%20%D0%BF%D1%80%D0%BE%D1%86%D0%B5%D1%81%D1%81%D0%B0%20%D0%BF%D0%B5%D1%80%D0%B5%D1%80%D0%B0%D0%B1%D0%BE%D1%82%D0%BA%D0%B8.md)
+
+* [Мобильный завод nomad 20 lph crusher Цена](../36/%D0%9C%D0%BE%D0%B1%D0%B8%D0%BB%D1%8C%D0%BD%D1%8B%D0%B9%20%D0%B7%D0%B0%D0%B2%D0%BE%D0%B4%20nomad%2020%20lph%20crusher%20%D0%A6%D0%B5%D0%BD%D0%B0.md)
+
+* [pulverizing coal hammer mill pdf](../40/pulverizing%20coal%20hammer%20mill%20pdf.md)
+
+* [Флотационный утюг удаленный гематит](../38/%D0%A4%D0%BB%D0%BE%D1%82%D0%B0%D1%86%D0%B8%D0%BE%D0%BD%D0%BD%D1%8B%D0%B9%20%D1%83%D1%82%D1%8E%D0%B3%20%D1%83%D0%B4%D0%B0%D0%BB%D0%B5%D0%BD%D0%BD%D1%8B%D0%B9%20%D0%B3%D0%B5%D0%BC%D0%B0%D1%82%D0%B8%D1%82.md)
+
+* [Стоимость разработки шахты в размере 100 тонн в год](../37/%D0%A1%D1%82%D0%BE%D0%B8%D0%BC%D0%BE%D1%81%D1%82%D1%8C%20%D1%80%D0%B0%D0%B7%D1%80%D0%B0%D0%B1%D0%BE%D1%82%D0%BA%D0%B8%20%D1%88%D0%B0%D1%85%D1%82%D1%8B%20%D0%B2%20%D1%80%D0%B0%D0%B7%D0%BC%D0%B5%D1%80%D0%B5%20100%20%D1%82%D0%BE%D0%BD%D0%BD%20%D0%B2%20%D0%B3%D0%BE%D0%B4.md)
+
+* [Каменная бетономешалка](../36/%D0%9A%D0%B0%D0%BC%D0%B5%D0%BD%D0%BD%D0%B0%D1%8F%20%D0%B1%D0%B5%D1%82%D0%BE%D0%BD%D0%BE%D0%BC%D0%B5%D1%88%D0%B0%D0%BB%D0%BA%D0%B0.md)

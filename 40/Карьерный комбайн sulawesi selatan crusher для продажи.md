@@ -270,4 +270,14 @@ Loker Logistic Surabaya Company Coal Mining.loker logistic surabaya coal mining.
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=%D0%9A%D0%B0%D1%80%D1%8C%D0%B5%D1%80%D0%BD%D1%8B%D0%B9+%D0%BA%D0%BE%D0%BC%D0%B1%D0%B0%D0%B9%D0%BD+sulawesi+selatan+crusher+%D0%B4%D0%BB%D1%8F+%D0%BF%D1%80%D0%BE%D0%B4%D0%B0%D0%B6%D0%B8)
 
-{{links}}
+* [Промышленный картофельный пюре](../39/%D0%9F%D1%80%D0%BE%D0%BC%D1%8B%D1%88%D0%BB%D0%B5%D0%BD%D0%BD%D1%8B%D0%B9%20%D0%BA%D0%B0%D1%80%D1%82%D0%BE%D1%84%D0%B5%D0%BB%D1%8C%D0%BD%D1%8B%D0%B9%20%D0%BF%D1%8E%D1%80%D0%B5.md)
+
+* [Цемент Мачидробилка](../36/%D0%A6%D0%B5%D0%BC%D0%B5%D0%BD%D1%82%20%D0%9C%D0%B0%D1%87%D0%B8%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0.md)
+
+* [Различные типы дробилок](../36/%D0%A0%D0%B0%D0%B7%D0%BB%D0%B8%D1%87%D0%BD%D1%8B%D0%B5%20%D1%82%D0%B8%D0%BF%D1%8B%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BE%D0%BA.md)
+
+* [Скачать mineral processing engineer](../37/%D0%A1%D0%BA%D0%B0%D1%87%D0%B0%D1%82%D1%8C%20mineral%20processing%20engineer.md)
+
+* [alog machinery для дробилки](../40/alog%20machinery%20%D0%B4%D0%BB%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8.md)
+
+* [Мобильный карьерный завод](../36/%D0%9C%D0%BE%D0%B1%D0%B8%D0%BB%D1%8C%D0%BD%D1%8B%D0%B9%20%D0%BA%D0%B0%D1%80%D1%8C%D0%B5%D1%80%D0%BD%D1%8B%D0%B9%20%D0%B7%D0%B0%D0%B2%D0%BE%D0%B4.md)

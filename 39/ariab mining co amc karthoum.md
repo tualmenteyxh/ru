@@ -370,4 +370,14 @@ Ariab Mining Company SUDAN.Blue Nile University Faculty of Engineering Mining En
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=ariab+mining+co+amc+karthoum)
 
-{{links}}
+* [lafarge aggregates](../36/lafarge%20aggregates.md)
+
+* [Где я могу получить серебряную руду в Индонезии](../38/%D0%93%D0%B4%D0%B5%20%D1%8F%20%D0%BC%D0%BE%D0%B3%D1%83%20%D0%BF%D0%BE%D0%BB%D1%83%D1%87%D0%B8%D1%82%D1%8C%20%D1%81%D0%B5%D1%80%D0%B5%D0%B1%D1%80%D1%8F%D0%BD%D1%83%D1%8E%20%D1%80%D1%83%D0%B4%D1%83%20%D0%B2%20%D0%98%D0%BD%D0%B4%D0%BE%D0%BD%D0%B5%D0%B7%D0%B8%D0%B8.md)
+
+* [Добыча угля в Пакистане](../40/%D0%94%D0%BE%D0%B1%D1%8B%D1%87%D0%B0%20%D1%83%D0%B3%D0%BB%D1%8F%20%D0%B2%20%D0%9F%D0%B0%D0%BA%D0%B8%D1%81%D1%82%D0%B0%D0%BD%D0%B5.md)
+
+* [micro trituracion stones used crusher Цена Филиппины](../39/micro%20trituracion%20stones%20used%20crusher%20%D0%A6%D0%B5%D0%BD%D0%B0%20%D0%A4%D0%B8%D0%BB%D0%B8%D0%BF%D0%BF%D0%B8%D0%BD%D1%8B.md)
+
+* [Оборудование для мойки песком silica](../40/%D0%9E%D0%B1%D0%BE%D1%80%D1%83%D0%B4%D0%BE%D0%B2%D0%B0%D0%BD%D0%B8%D0%B5%20%D0%B4%D0%BB%D1%8F%20%D0%BC%D0%BE%D0%B9%D0%BA%D0%B8%20%D0%BF%D0%B5%D1%81%D0%BA%D0%BE%D0%BC%20silica.md)
+
+* [yds50 Цена дробилки Цена Инвест](../39/yds50%20%D0%A6%D0%B5%D0%BD%D0%B0%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8%20%D0%A6%D0%B5%D0%BD%D0%B0%20%D0%98%D0%BD%D0%B2%D0%B5%D1%81%D1%82.md)

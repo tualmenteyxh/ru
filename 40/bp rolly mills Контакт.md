@@ -340,4 +340,14 @@ Microchip Names (F) Note: As a public outreach effort,over 1 million names were 
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=bp+rolly+mills+%D0%9A%D0%BE%D0%BD%D1%82%D0%B0%D0%BA%D1%82)
 
-{{links}}
+* [Поставщик и производители оборудования для роликовой дробилки Индия](../38/%D0%9F%D0%BE%D1%81%D1%82%D0%B0%D0%B2%D1%89%D0%B8%D0%BA%20%D0%B8%20%D0%BF%D1%80%D0%BE%D0%B8%D0%B7%D0%B2%D0%BE%D0%B4%D0%B8%D1%82%D0%B5%D0%BB%D0%B8%20%D0%BE%D0%B1%D0%BE%D1%80%D1%83%D0%B4%D0%BE%D0%B2%D0%B0%D0%BD%D0%B8%D1%8F%20%D0%B4%D0%BB%D1%8F%20%D1%80%D0%BE%D0%BB%D0%B8%D0%BA%D0%BE%D0%B2%D0%BE%D0%B9%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8%20%D0%98%D0%BD%D0%B4%D0%B8%D1%8F.md)
+
+* [План проекта для мельницы измельченного известняка](../38/%D0%9F%D0%BB%D0%B0%D0%BD%20%D0%BF%D1%80%D0%BE%D0%B5%D0%BA%D1%82%D0%B0%20%D0%B4%D0%BB%D1%8F%20%D0%BC%D0%B5%D0%BB%D1%8C%D0%BD%D0%B8%D1%86%D1%8B%20%D0%B8%D0%B7%D0%BC%D0%B5%D0%BB%D1%8C%D1%87%D0%B5%D0%BD%D0%BD%D0%BE%D0%B3%D0%BE%20%D0%B8%D0%B7%D0%B2%D0%B5%D1%81%D1%82%D0%BD%D1%8F%D0%BA%D0%B0.md)
+
+* [cedarapids rycicling and concrete demolition crushing](../37/cedarapids%20rycicling%20and%20concrete%20demolition%20crushing.md)
+
+* [Поставщик шлифовальной машины hazelnut](../39/%D0%9F%D0%BE%D1%81%D1%82%D0%B0%D0%B2%D1%89%D0%B8%D0%BA%20%D1%88%D0%BB%D0%B8%D1%84%D0%BE%D0%B2%D0%B0%D0%BB%D1%8C%D0%BD%D0%BE%D0%B9%20%D0%BC%D0%B0%D1%88%D0%B8%D0%BD%D1%8B%20hazelnut.md)
+
+* [Золотая мочалка craigslist](../38/%D0%97%D0%BE%D0%BB%D0%BE%D1%82%D0%B0%D1%8F%20%D0%BC%D0%BE%D1%87%D0%B0%D0%BB%D0%BA%D0%B0%20craigslist.md)
+
+* [Сталь проката](../38/%D0%A1%D1%82%D0%B0%D0%BB%D1%8C%20%D0%BF%D1%80%D0%BE%D0%BA%D0%B0%D1%82%D0%B0.md)

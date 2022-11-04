@@ -411,4 +411,14 @@ Oct 10,2018 Explore morpheusstudios's board "3D Logos" on Pinterest.See more ide
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=ppt+in+mining+%D0%98%D0%BD%D0%B4%D0%B8%D0%B9%D1%81%D0%BA%D0%B0%D1%8F+%D0%BF%D1%80%D0%BE%D0%BC%D1%8B%D1%88%D0%BB%D0%B5%D0%BD%D0%BD%D0%BE%D1%81%D1%82%D1%8C)
 
-{{links}}
+* [Дробилка дробилки Динамо](../37/%D0%94%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8%20%D0%94%D0%B8%D0%BD%D0%B0%D0%BC%D0%BE.md)
+
+* [Каменная дробилка Маскат](../38/%D0%9A%D0%B0%D0%BC%D0%B5%D0%BD%D0%BD%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20%D0%9C%D0%B0%D1%81%D0%BA%D0%B0%D1%82.md)
+
+* [Как обрабатывать песок из силиката](../39/%D0%9A%D0%B0%D0%BA%20%D0%BE%D0%B1%D1%80%D0%B0%D0%B1%D0%B0%D1%82%D1%8B%D0%B2%D0%B0%D1%82%D1%8C%20%D0%BF%D0%B5%D1%81%D0%BE%D0%BA%20%D0%B8%D0%B7%20%D1%81%D0%B8%D0%BB%D0%B8%D0%BA%D0%B0%D1%82%D0%B0.md)
+
+* [Карта счетов](../36/%D0%9A%D0%B0%D1%80%D1%82%D0%B0%20%D1%81%D1%87%D0%B5%D1%82%D0%BE%D0%B2.md)
+
+* [Машина для дробления камней двойного следа в Индии](../36/%D0%9C%D0%B0%D1%88%D0%B8%D0%BD%D0%B0%20%D0%B4%D0%BB%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F%20%D0%BA%D0%B0%D0%BC%D0%BD%D0%B5%D0%B9%20%D0%B4%D0%B2%D0%BE%D0%B9%D0%BD%D0%BE%D0%B3%D0%BE%20%D1%81%D0%BB%D0%B5%D0%B4%D0%B0%20%D0%B2%20%D0%98%D0%BD%D0%B4%D0%B8%D0%B8.md)
+
+* [Щековая дробилка coalorecrusher](../40/%D0%A9%D0%B5%D0%BA%D0%BE%D0%B2%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20coalorecrusher.md)

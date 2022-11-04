@@ -411,4 +411,14 @@ Cari lowongan kerja dan temukan lowongan pekerjaan juli 2019 terbaru disini! Low
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=infolowongan+kerja+mining+coal)
 
-{{links}}
+* [Оборудование для дробления древесной руды](../36/%D0%9E%D0%B1%D0%BE%D1%80%D1%83%D0%B4%D0%BE%D0%B2%D0%B0%D0%BD%D0%B8%D0%B5%20%D0%B4%D0%BB%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F%20%D0%B4%D1%80%D0%B5%D0%B2%D0%B5%D1%81%D0%BD%D0%BE%D0%B9%20%D1%80%D1%83%D0%B4%D1%8B.md)
+
+* [Мобильная дробилка для продажи в Европе](../40/%D0%9C%D0%BE%D0%B1%D0%B8%D0%BB%D1%8C%D0%BD%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20%D0%B4%D0%BB%D1%8F%20%D0%BF%D1%80%D0%BE%D0%B4%D0%B0%D0%B6%D0%B8%20%D0%B2%20%D0%95%D0%B2%D1%80%D0%BE%D0%BF%D0%B5.md)
+
+* [Цены на оборудование для каменной дробилки](../39/%D0%A6%D0%B5%D0%BD%D1%8B%20%D0%BD%D0%B0%20%D0%BE%D0%B1%D0%BE%D1%80%D1%83%D0%B4%D0%BE%D0%B2%D0%B0%D0%BD%D0%B8%D0%B5%20%D0%B4%D0%BB%D1%8F%20%D0%BA%D0%B0%D0%BC%D0%B5%D0%BD%D0%BD%D0%BE%D0%B9%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8.md)
+
+* [Повышение эффективности шаровой мельницы](../40/%D0%9F%D0%BE%D0%B2%D1%8B%D1%88%D0%B5%D0%BD%D0%B8%D0%B5%20%D1%8D%D1%84%D1%84%D0%B5%D0%BA%D1%82%D0%B8%D0%B2%D0%BD%D0%BE%D1%81%D1%82%D0%B8%20%D1%88%D0%B0%D1%80%D0%BE%D0%B2%D0%BE%D0%B9%20%D0%BC%D0%B5%D0%BB%D1%8C%D0%BD%D0%B8%D1%86%D1%8B.md)
+
+* [Порошковая мельница порошка](../36/%D0%9F%D0%BE%D1%80%D0%BE%D1%88%D0%BA%D0%BE%D0%B2%D0%B0%D1%8F%20%D0%BC%D0%B5%D0%BB%D1%8C%D0%BD%D0%B8%D1%86%D0%B0%20%D0%BF%D0%BE%D1%80%D0%BE%D1%88%D0%BA%D0%B0.md)
+
+* [Кварцевые дробильные установки в Гуджарате](../38/%D0%9A%D0%B2%D0%B0%D1%80%D1%86%D0%B5%D0%B2%D1%8B%D0%B5%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D1%8C%D0%BD%D1%8B%D0%B5%20%D1%83%D1%81%D1%82%D0%B0%D0%BD%D0%BE%D0%B2%D0%BA%D0%B8%20%D0%B2%20%D0%93%D1%83%D0%B4%D0%B6%D0%B0%D1%80%D0%B0%D1%82%D0%B5.md)

@@ -371,4 +371,14 @@ VSI5X дробилка (последнее дробилка с вертикал�
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=%D0%9F%D0%B5%D1%81%D1%87%D0%B0%D0%BD%D0%B0%D1%8F+%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0+benslimane+%D0%B2+%D0%9C%D0%B0%D1%80%D0%BE%D0%BA%D0%BA%D0%BE)
 
-{{links}}
+* [beru arranque de trituradora de piedra](../39/beru%20arranque%20de%20trituradora%20de%20piedra.md)
+
+* [Золотые рудники в Индии](../40/%D0%97%D0%BE%D0%BB%D0%BE%D1%82%D1%8B%D0%B5%20%D1%80%D1%83%D0%B4%D0%BD%D0%B8%D0%BA%D0%B8%20%D0%B2%20%D0%98%D0%BD%D0%B4%D0%B8%D0%B8.md)
+
+* [Золотая дробилка muchine в Бразилии](../38/%D0%97%D0%BE%D0%BB%D0%BE%D1%82%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20muchine%20%D0%B2%20%D0%91%D1%80%D0%B0%D0%B7%D0%B8%D0%BB%D0%B8%D0%B8.md)
+
+* [Шлифовальный клинкер 1500х6000мм](../39/%D0%A8%D0%BB%D0%B8%D1%84%D0%BE%D0%B2%D0%B0%D0%BB%D1%8C%D0%BD%D1%8B%D0%B9%20%D0%BA%D0%BB%D0%B8%D0%BD%D0%BA%D0%B5%D1%80%201500%D1%856000%D0%BC%D0%BC.md)
+
+* [Дробление продуктов fabrque devolaille enalgerie](../40/%D0%94%D1%80%D0%BE%D0%B1%D0%BB%D0%B5%D0%BD%D0%B8%D0%B5%20%D0%BF%D1%80%D0%BE%D0%B4%D1%83%D0%BA%D1%82%D0%BE%D0%B2%20fabrque%20devolaille%20enalgerie.md)
+
+* [kapanlaki com crusher 5 html kapanlaki](../38/kapanlaki%20com%20crusher%205%20html%20kapanlaki.md)

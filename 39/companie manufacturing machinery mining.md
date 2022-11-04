@@ -321,4 +321,14 @@ Jiangxi Hengchang Mining Machinery Manufacturing Co.Ltd.is the leading company i
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=companie+manufacturing+machinery+mining)
 
-{{links}}
+* [jg miningpany limited](../40/jg%20miningpany%20limited.md)
+
+* [Используемые мобильные камнерезные машины](../40/%D0%98%D1%81%D0%BF%D0%BE%D0%BB%D1%8C%D0%B7%D1%83%D0%B5%D0%BC%D1%8B%D0%B5%20%D0%BC%D0%BE%D0%B1%D0%B8%D0%BB%D1%8C%D0%BD%D1%8B%D0%B5%20%D0%BA%D0%B0%D0%BC%D0%BD%D0%B5%D1%80%D0%B5%D0%B7%D0%BD%D1%8B%D0%B5%20%D0%BC%D0%B0%D1%88%D0%B8%D0%BD%D1%8B.md)
+
+* [Промышленный сборщик рулонов coffe из Бразилии](../40/%D0%9F%D1%80%D0%BE%D0%BC%D1%8B%D1%88%D0%BB%D0%B5%D0%BD%D0%BD%D1%8B%D0%B9%20%D1%81%D0%B1%D0%BE%D1%80%D1%89%D0%B8%D0%BA%20%D1%80%D1%83%D0%BB%D0%BE%D0%BD%D0%BE%D0%B2%20coffe%20%D0%B8%D0%B7%20%D0%91%D1%80%D0%B0%D0%B7%D0%B8%D0%BB%D0%B8%D0%B8.md)
+
+* [Дробилки Продажа Ирландия 180t](../40/%D0%94%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8%20%D0%9F%D1%80%D0%BE%D0%B4%D0%B0%D0%B6%D0%B0%20%D0%98%D1%80%D0%BB%D0%B0%D0%BD%D0%B4%D0%B8%D1%8F%20180t.md)
+
+* [Вал Воблер для дробилки](../37/%D0%92%D0%B0%D0%BB%20%D0%92%D0%BE%D0%B1%D0%BB%D0%B5%D1%80%20%D0%B4%D0%BB%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8.md)
+
+* [Щековая дробилка с малым колесом](../40/%D0%A9%D0%B5%D0%BA%D0%BE%D0%B2%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20%D1%81%20%D0%BC%D0%B0%D0%BB%D1%8B%D0%BC%20%D0%BA%D0%BE%D0%BB%D0%B5%D1%81%D0%BE%D0%BC.md)

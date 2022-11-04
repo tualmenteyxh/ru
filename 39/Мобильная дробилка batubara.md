@@ -411,4 +411,14 @@ dijual mobile crusher untuk batubara tasleek.13 Feb 2016 Situs Jual beli barang 
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=%D0%9C%D0%BE%D0%B1%D0%B8%D0%BB%D1%8C%D0%BD%D0%B0%D1%8F+%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0+batubara)
 
-{{links}}
+* [moinho para moer plastico pre os](../37/moinho%20para%20moer%20plastico%20pre%20os.md)
+
+* [Программа установки рулонных дробилок](../38/%D0%9F%D1%80%D0%BE%D0%B3%D1%80%D0%B0%D0%BC%D0%BC%D0%B0%20%D1%83%D1%81%D1%82%D0%B0%D0%BD%D0%BE%D0%B2%D0%BA%D0%B8%20%D1%80%D1%83%D0%BB%D0%BE%D0%BD%D0%BD%D1%8B%D1%85%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BE%D0%BA.md)
+
+* [Используемая портативная рудная дробилка](../36/%D0%98%D1%81%D0%BF%D0%BE%D0%BB%D1%8C%D0%B7%D1%83%D0%B5%D0%BC%D0%B0%D1%8F%20%D0%BF%D0%BE%D1%80%D1%82%D0%B0%D1%82%D0%B8%D0%B2%D0%BD%D0%B0%D1%8F%20%D1%80%D1%83%D0%B4%D0%BD%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0.md)
+
+* [Новинка в Шотландии](../39/%D0%9D%D0%BE%D0%B2%D0%B8%D0%BD%D0%BA%D0%B0%20%D0%B2%20%D0%A8%D0%BE%D1%82%D0%BB%D0%B0%D0%BD%D0%B4%D0%B8%D0%B8.md)
+
+* [Промышленный зенит для дробилки](../40/%D0%9F%D1%80%D0%BE%D0%BC%D1%8B%D1%88%D0%BB%D0%B5%D0%BD%D0%BD%D1%8B%D0%B9%20%D0%B7%D0%B5%D0%BD%D0%B8%D1%82%20%D0%B4%D0%BB%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8.md)
+
+* [Замбия Горная экономика](../40/%D0%97%D0%B0%D0%BC%D0%B1%D0%B8%D1%8F%20%D0%93%D0%BE%D1%80%D0%BD%D0%B0%D1%8F%20%D1%8D%D0%BA%D0%BE%D0%BD%D0%BE%D0%BC%D0%B8%D0%BA%D0%B0.md)

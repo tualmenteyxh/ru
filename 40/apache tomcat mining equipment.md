@@ -271,4 +271,14 @@ The Apache Software Foundation issued an urgent patch Tuesday for a serious vuln
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=apache+tomcat+mining+equipment)
 
-{{links}}
+* [Каменная дробилка pe 400 specs](../37/%D0%9A%D0%B0%D0%BC%D0%B5%D0%BD%D0%BD%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20pe%20400%20specs.md)
+
+* [Список iof Все строительные и карьерные компании в Гане](../40/%D0%A1%D0%BF%D0%B8%D1%81%D0%BE%D0%BA%20iof%20%D0%92%D1%81%D0%B5%20%D1%81%D1%82%D1%80%D0%BE%D0%B8%D1%82%D0%B5%D0%BB%D1%8C%D0%BD%D1%8B%D0%B5%20%D0%B8%20%D0%BA%D0%B0%D1%80%D1%8C%D0%B5%D1%80%D0%BD%D1%8B%D0%B5%20%D0%BA%D0%BE%D0%BC%D0%BF%D0%B0%D0%BD%D0%B8%D0%B8%20%D0%B2%20%D0%93%D0%B0%D0%BD%D0%B5.md)
+
+* [Машины для горной железной руды](../37/%D0%9C%D0%B0%D1%88%D0%B8%D0%BD%D1%8B%20%D0%B4%D0%BB%D1%8F%20%D0%B3%D0%BE%D1%80%D0%BD%D0%BE%D0%B9%20%D0%B6%D0%B5%D0%BB%D0%B5%D0%B7%D0%BD%D0%BE%D0%B9%20%D1%80%D1%83%D0%B4%D1%8B.md)
+
+* [Ротационная угольная мельница rmf 1000 merck china](../36/%D0%A0%D0%BE%D1%82%D0%B0%D1%86%D0%B8%D0%BE%D0%BD%D0%BD%D0%B0%D1%8F%20%D1%83%D0%B3%D0%BE%D0%BB%D1%8C%D0%BD%D0%B0%D1%8F%20%D0%BC%D0%B5%D0%BB%D1%8C%D0%BD%D0%B8%D1%86%D0%B0%20rmf%201000%20merck%20china.md)
+
+* [Продажа угольной шахты](../40/%D0%9F%D1%80%D0%BE%D0%B4%D0%B0%D0%B6%D0%B0%20%D1%83%D0%B3%D0%BE%D0%BB%D1%8C%D0%BD%D0%BE%D0%B9%20%D1%88%D0%B0%D1%85%D1%82%D1%8B.md)
+
+* [Щековая дробилка 600x900 Размеры рамы](../36/%D0%A9%D0%B5%D0%BA%D0%BE%D0%B2%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20600x900%20%D0%A0%D0%B0%D0%B7%D0%BC%D0%B5%D1%80%D1%8B%20%D1%80%D0%B0%D0%BC%D1%8B.md)

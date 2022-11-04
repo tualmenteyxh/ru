@@ -360,4 +360,14 @@ Lali Miningpany Limited In Tema.local miningpany in ghana ediliziacostamarco.it.
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=sokolo+miningpany+ceo)
 
-{{links}}
+* [Цена для машины для цементирования цемента в Индии](../39/%D0%A6%D0%B5%D0%BD%D0%B0%20%D0%B4%D0%BB%D1%8F%20%D0%BC%D0%B0%D1%88%D0%B8%D0%BD%D1%8B%20%D0%B4%D0%BB%D1%8F%20%D1%86%D0%B5%D0%BC%D0%B5%D0%BD%D1%82%D0%B8%D1%80%D0%BE%D0%B2%D0%B0%D0%BD%D0%B8%D1%8F%20%D1%86%D0%B5%D0%BC%D0%B5%D0%BD%D1%82%D0%B0%20%D0%B2%20%D0%98%D0%BD%D0%B4%D0%B8%D0%B8.md)
+
+* [jenis jenis mesin Шлифование](../37/jenis%20jenis%20mesin%20%D0%A8%D0%BB%D0%B8%D1%84%D0%BE%D0%B2%D0%B0%D0%BD%D0%B8%D0%B5.md)
+
+* [Горное дело для железной руды](../39/%D0%93%D0%BE%D1%80%D0%BD%D0%BE%D0%B5%20%D0%B4%D0%B5%D0%BB%D0%BE%20%D0%B4%D0%BB%D1%8F%20%D0%B6%D0%B5%D0%BB%D0%B5%D0%B7%D0%BD%D0%BE%D0%B9%20%D1%80%D1%83%D0%B4%D1%8B.md)
+
+* [Подержанные каменные дробилки new york state](../37/%D0%9F%D0%BE%D0%B4%D0%B5%D1%80%D0%B6%D0%B0%D0%BD%D0%BD%D1%8B%D0%B5%20%D0%BA%D0%B0%D0%BC%D0%B5%D0%BD%D0%BD%D1%8B%D0%B5%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8%20new%20york%20state.md)
+
+* [mini pulviser machine для штукатурки в Париже](../39/mini%20pulviser%20machine%20%D0%B4%D0%BB%D1%8F%20%D1%88%D1%82%D1%83%D0%BA%D0%B0%D1%82%D1%83%D1%80%D0%BA%D0%B8%20%D0%B2%20%D0%9F%D0%B0%D1%80%D0%B8%D0%B6%D0%B5.md)
+
+* [ecoman vsi crusher Индонезия](../39/ecoman%20vsi%20crusher%20%D0%98%D0%BD%D0%B4%D0%BE%D0%BD%D0%B5%D0%B7%D0%B8%D1%8F.md)
