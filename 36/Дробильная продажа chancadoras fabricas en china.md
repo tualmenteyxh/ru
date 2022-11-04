@@ -410,4 +410,14 @@ En esa época los holandeses ya utilizaban la técnica de extraer agua con molin
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=%D0%94%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D1%8C%D0%BD%D0%B0%D1%8F+%D0%BF%D1%80%D0%BE%D0%B4%D0%B0%D0%B6%D0%B0+chancadoras+fabricas+en+china)
 
-{{links}}
+* [lampt crushing sreen portable](../36/lampt%20crushing%20sreen%20portable.md)
+
+* [Машина искусственного песка](../37/%D0%9C%D0%B0%D1%88%D0%B8%D0%BD%D0%B0%20%D0%B8%D1%81%D0%BA%D1%83%D1%81%D1%81%D1%82%D0%B2%D0%B5%D0%BD%D0%BD%D0%BE%D0%B3%D0%BE%20%D0%BF%D0%B5%D1%81%D0%BA%D0%B0.md)
+
+* [Интеллектуальный шлем для шахтеров с использованием zigbee ppt](../40/%D0%98%D0%BD%D1%82%D0%B5%D0%BB%D0%BB%D0%B5%D0%BA%D1%82%D1%83%D0%B0%D0%BB%D1%8C%D0%BD%D1%8B%D0%B9%20%D1%88%D0%BB%D0%B5%D0%BC%20%D0%B4%D0%BB%D1%8F%20%D1%88%D0%B0%D1%85%D1%82%D0%B5%D1%80%D0%BE%D0%B2%20%D1%81%20%D0%B8%D1%81%D0%BF%D0%BE%D0%BB%D1%8C%D0%B7%D0%BE%D0%B2%D0%B0%D0%BD%D0%B8%D0%B5%D0%BC%20zigbee%20ppt.md)
+
+* [Как обрабатывать специи видео](../38/%D0%9A%D0%B0%D0%BA%20%D0%BE%D0%B1%D1%80%D0%B0%D0%B1%D0%B0%D1%82%D1%8B%D0%B2%D0%B0%D1%82%D1%8C%20%D1%81%D0%BF%D0%B5%D1%86%D0%B8%D0%B8%20%D0%B2%D0%B8%D0%B4%D0%B5%D0%BE.md)
+
+* [Уголь Добыча Барито Ютара](../39/%D0%A3%D0%B3%D0%BE%D0%BB%D1%8C%20%D0%94%D0%BE%D0%B1%D1%8B%D1%87%D0%B0%20%D0%91%D0%B0%D1%80%D0%B8%D1%82%D0%BE%20%D0%AE%D1%82%D0%B0%D1%80%D0%B0.md)
+
+* [Ищет дизельную дробилку x jaw](../36/%D0%98%D1%89%D0%B5%D1%82%20%D0%B4%D0%B8%D0%B7%D0%B5%D0%BB%D1%8C%D0%BD%D1%83%D1%8E%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D1%83%20x%20jaw.md)

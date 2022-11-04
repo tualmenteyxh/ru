@@ -241,4 +241,14 @@ The Soldier's Burden.The Weapon and its "Noisemakers" The Granatenwerfer 16 was 
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=%D0%94%D0%B8%D0%B7%D0%B0%D0%B9%D0%BD+%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8+pengaman+dynamo)
 
-{{links}}
+* [cofee grinder professional](../37/cofee%20grinder%20professional.md)
+
+* [prago 050201 Уэстон Фруктовая дробилка apple](../39/prago%20050201%20%D0%A3%D1%8D%D1%81%D1%82%D0%BE%D0%BD%20%D0%A4%D1%80%D1%83%D0%BA%D1%82%D0%BE%D0%B2%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20apple.md)
+
+* [Стеклянная дробилка youtube](../39/%D0%A1%D1%82%D0%B5%D0%BA%D0%BB%D1%8F%D0%BD%D0%BD%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20youtube.md)
+
+* [Аварии в горно-обогатительных заводах ppt](../38/%D0%90%D0%B2%D0%B0%D1%80%D0%B8%D0%B8%20%D0%B2%20%D0%B3%D0%BE%D1%80%D0%BD%D0%BE-%D0%BE%D0%B1%D0%BE%D0%B3%D0%B0%D1%82%D0%B8%D1%82%D0%B5%D0%BB%D1%8C%D0%BD%D1%8B%D1%85%20%D0%B7%D0%B0%D0%B2%D0%BE%D0%B4%D0%B0%D1%85%20ppt.md)
+
+* [Производители оборудования для обогащения хрома](../37/%D0%9F%D1%80%D0%BE%D0%B8%D0%B7%D0%B2%D0%BE%D0%B4%D0%B8%D1%82%D0%B5%D0%BB%D0%B8%20%D0%BE%D0%B1%D0%BE%D1%80%D1%83%D0%B4%D0%BE%D0%B2%D0%B0%D0%BD%D0%B8%D1%8F%20%D0%B4%D0%BB%D1%8F%20%D0%BE%D0%B1%D0%BE%D0%B3%D0%B0%D1%89%D0%B5%D0%BD%D0%B8%D1%8F%20%D1%85%D1%80%D0%BE%D0%BC%D0%B0.md)
+
+* [Каменная дробилка Предыдущая работа](../39/%D0%9A%D0%B0%D0%BC%D0%B5%D0%BD%D0%BD%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20%D0%9F%D1%80%D0%B5%D0%B4%D1%8B%D0%B4%D1%83%D1%89%D0%B0%D1%8F%20%D1%80%D0%B0%D0%B1%D0%BE%D1%82%D0%B0.md)

@@ -411,4 +411,14 @@ Minería,territorio y territorialidad: el caso del hallazgo aurífero La Colosa.
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=proyecto+campamento+base+compleja+mineria+del+carbon+de+abeto)
 
-{{links}}
+* [Нама Токо Сепату Безопасность Мерк Крушер Ди Сурабая](../40/%D0%9D%D0%B0%D0%BC%D0%B0%20%D0%A2%D0%BE%D0%BA%D0%BE%20%D0%A1%D0%B5%D0%BF%D0%B0%D1%82%D1%83%20%D0%91%D0%B5%D0%B7%D0%BE%D0%BF%D0%B0%D1%81%D0%BD%D0%BE%D1%81%D1%82%D1%8C%20%D0%9C%D0%B5%D1%80%D0%BA%20%D0%9A%D1%80%D1%83%D1%88%D0%B5%D1%80%20%D0%94%D0%B8%20%D0%A1%D1%83%D1%80%D0%B0%D0%B1%D0%B0%D1%8F.md)
+
+* [akdag marble and miningpany](../39/akdag%20marble%20and%20miningpany.md)
+
+* [Группа по производству дробильных установок](../39/%D0%93%D1%80%D1%83%D0%BF%D0%BF%D0%B0%20%D0%BF%D0%BE%20%D0%BF%D1%80%D0%BE%D0%B8%D0%B7%D0%B2%D0%BE%D0%B4%D1%81%D1%82%D0%B2%D1%83%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D1%8C%D0%BD%D1%8B%D1%85%20%D1%83%D1%81%D1%82%D0%B0%D0%BD%D0%BE%D0%B2%D0%BE%D0%BA.md)
+
+* [spesifikasi crusher batubara untuk 50000 mt tiap bulan](../36/spesifikasi%20crusher%20batubara%20untuk%2050000%20mt%20tiap%20bulan.md)
+
+* [Подержанная мельница ball mining](../36/%D0%9F%D0%BE%D0%B4%D0%B5%D1%80%D0%B6%D0%B0%D0%BD%D0%BD%D0%B0%D1%8F%20%D0%BC%D0%B5%D0%BB%D1%8C%D0%BD%D0%B8%D1%86%D0%B0%20ball%20mining.md)
+
+* [Производство горных пород Австралия](../36/%D0%9F%D1%80%D0%BE%D0%B8%D0%B7%D0%B2%D0%BE%D0%B4%D1%81%D1%82%D0%B2%D0%BE%20%D0%B3%D0%BE%D1%80%D0%BD%D1%8B%D1%85%20%D0%BF%D0%BE%D1%80%D0%BE%D0%B4%20%D0%90%D0%B2%D1%81%D1%82%D1%80%D0%B0%D0%BB%D0%B8%D1%8F.md)

@@ -160,4 +160,14 @@ Jun 20,2014 · С 11 по 13 июня 2014 года в Астане во Дво
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=%D0%9F%D1%80%D0%BE%D0%B5%D0%BA%D1%82+awisam+mining)
 
-{{links}}
+* [tamouey baby at hot mill do](../40/tamouey%20baby%20at%20hot%20mill%20do.md)
+
+* [Эксклюзивный дистрибьютор rock crusher](../38/%D0%AD%D0%BA%D1%81%D0%BA%D0%BB%D1%8E%D0%B7%D0%B8%D0%B2%D0%BD%D1%8B%D0%B9%20%D0%B4%D0%B8%D1%81%D1%82%D1%80%D0%B8%D0%B1%D1%8C%D1%8E%D1%82%D0%BE%D1%80%20rock%20crusher.md)
+
+* [shaghai sbm Добывающая и строительная техника](../37/shaghai%20sbm%20%D0%94%D0%BE%D0%B1%D1%8B%D0%B2%D0%B0%D1%8E%D1%89%D0%B0%D1%8F%20%D0%B8%20%D1%81%D1%82%D1%80%D0%BE%D0%B8%D1%82%D0%B5%D0%BB%D1%8C%D0%BD%D0%B0%D1%8F%20%D1%82%D0%B5%D1%85%D0%BD%D0%B8%D0%BA%D0%B0.md)
+
+* [Цена 3 4 Дробилка run stone](../40/%D0%A6%D0%B5%D0%BD%D0%B0%203%204%20%D0%94%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20run%20stone.md)
+
+* [Производитель каменной дробилки в Калькутте](../40/%D0%9F%D1%80%D0%BE%D0%B8%D0%B7%D0%B2%D0%BE%D0%B4%D0%B8%D1%82%D0%B5%D0%BB%D1%8C%20%D0%BA%D0%B0%D0%BC%D0%B5%D0%BD%D0%BD%D0%BE%D0%B9%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8%20%D0%B2%20%D0%9A%D0%B0%D0%BB%D1%8C%D0%BA%D1%83%D1%82%D1%82%D0%B5.md)
+
+* [Полировальный станок для dvds](../36/%D0%9F%D0%BE%D0%BB%D0%B8%D1%80%D0%BE%D0%B2%D0%B0%D0%BB%D1%8C%D0%BD%D1%8B%D0%B9%20%D1%81%D1%82%D0%B0%D0%BD%D0%BE%D0%BA%20%D0%B4%D0%BB%D1%8F%20dvds.md)

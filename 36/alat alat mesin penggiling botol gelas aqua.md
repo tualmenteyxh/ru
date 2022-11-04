@@ -411,4 +411,14 @@ Mesin Penghancur Limbah Plastik anekamesin.Deskripsi: Mesin Penghancur Limbah Pl
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=alat+alat+mesin+penggiling+botol+gelas+aqua)
 
-{{links}}
+* [Гранитная добыча и переработка в Италии](../37/%D0%93%D1%80%D0%B0%D0%BD%D0%B8%D1%82%D0%BD%D0%B0%D1%8F%20%D0%B4%D0%BE%D0%B1%D1%8B%D1%87%D0%B0%20%D0%B8%20%D0%BF%D0%B5%D1%80%D0%B5%D1%80%D0%B0%D0%B1%D0%BE%D1%82%D0%BA%D0%B0%20%D0%B2%20%D0%98%D1%82%D0%B0%D0%BB%D0%B8%D0%B8.md)
+
+* [kapur pabrik benefisiasi ubara di Индонезия](../38/kapur%20pabrik%20benefisiasi%20ubara%20di%20%D0%98%D0%BD%D0%B4%D0%BE%D0%BD%D0%B5%D0%B7%D0%B8%D1%8F.md)
+
+* [Мини-комбинированный токарный станок](../40/%D0%9C%D0%B8%D0%BD%D0%B8-%D0%BA%D0%BE%D0%BC%D0%B1%D0%B8%D0%BD%D0%B8%D1%80%D0%BE%D0%B2%D0%B0%D0%BD%D0%BD%D1%8B%D0%B9%20%D1%82%D0%BE%D0%BA%D0%B0%D1%80%D0%BD%D1%8B%D0%B9%20%D1%81%D1%82%D0%B0%D0%BD%D0%BE%D0%BA.md)
+
+* [Использование мельницы](../38/%D0%98%D1%81%D0%BF%D0%BE%D0%BB%D1%8C%D0%B7%D0%BE%D0%B2%D0%B0%D0%BD%D0%B8%D0%B5%20%D0%BC%D0%B5%D0%BB%D1%8C%D0%BD%D0%B8%D1%86%D1%8B.md)
+
+* [Портативная дробильная установка sbm crusher](../36/%D0%9F%D0%BE%D1%80%D1%82%D0%B0%D1%82%D0%B8%D0%B2%D0%BD%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D1%8C%D0%BD%D0%B0%D1%8F%20%D1%83%D1%81%D1%82%D0%B0%D0%BD%D0%BE%D0%B2%D0%BA%D0%B0%20sbm%20crusher.md)
+
+* [Каменная дробильная машина ket](../38/%D0%9A%D0%B0%D0%BC%D0%B5%D0%BD%D0%BD%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D1%8C%D0%BD%D0%B0%D1%8F%20%D0%BC%D0%B0%D1%88%D0%B8%D0%BD%D0%B0%20ket.md)

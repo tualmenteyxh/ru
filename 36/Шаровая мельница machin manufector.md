@@ -331,4 +331,14 @@ Feb 02,2016 · Шаровая мельница+Звездокатка (Balls mi
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=%D0%A8%D0%B0%D1%80%D0%BE%D0%B2%D0%B0%D1%8F+%D0%BC%D0%B5%D0%BB%D1%8C%D0%BD%D0%B8%D1%86%D0%B0+machin+manufector)
 
-{{links}}
+* [juego de crusher](../38/juego%20de%20crusher.md)
+
+* [Формы mhada для работников мельниц](../37/%D0%A4%D0%BE%D1%80%D0%BC%D1%8B%20mhada%20%D0%B4%D0%BB%D1%8F%20%D1%80%D0%B0%D0%B1%D0%BE%D1%82%D0%BD%D0%B8%D0%BA%D0%BE%D0%B2%20%D0%BC%D0%B5%D0%BB%D1%8C%D0%BD%D0%B8%D1%86.md)
+
+* [Производственная линия по производству искусственного песка](../39/%D0%9F%D1%80%D0%BE%D0%B8%D0%B7%D0%B2%D0%BE%D0%B4%D1%81%D1%82%D0%B2%D0%B5%D0%BD%D0%BD%D0%B0%D1%8F%20%D0%BB%D0%B8%D0%BD%D0%B8%D1%8F%20%D0%BF%D0%BE%20%D0%BF%D1%80%D0%BE%D0%B8%D0%B7%D0%B2%D0%BE%D0%B4%D1%81%D1%82%D0%B2%D1%83%20%D0%B8%D1%81%D0%BA%D1%83%D1%81%D1%81%D1%82%D0%B2%D0%B5%D0%BD%D0%BD%D0%BE%D0%B3%D0%BE%20%D0%BF%D0%B5%D1%81%D0%BA%D0%B0.md)
+
+* [Средняя цена карьера](../39/%D0%A1%D1%80%D0%B5%D0%B4%D0%BD%D1%8F%D1%8F%20%D1%86%D0%B5%D0%BD%D0%B0%20%D0%BA%D0%B0%D1%80%D1%8C%D0%B5%D1%80%D0%B0.md)
+
+* [Машина для брикетирования сухого порошкового давления](../37/%D0%9C%D0%B0%D1%88%D0%B8%D0%BD%D0%B0%20%D0%B4%D0%BB%D1%8F%20%D0%B1%D1%80%D0%B8%D0%BA%D0%B5%D1%82%D0%B8%D1%80%D0%BE%D0%B2%D0%B0%D0%BD%D0%B8%D1%8F%20%D1%81%D1%83%D1%85%D0%BE%D0%B3%D0%BE%20%D0%BF%D0%BE%D1%80%D0%BE%D1%88%D0%BA%D0%BE%D0%B2%D0%BE%D0%B3%D0%BE%20%D0%B4%D0%B0%D0%B2%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F.md)
+
+* [Твердость фрезерования пиролизита](../39/%D0%A2%D0%B2%D0%B5%D1%80%D0%B4%D0%BE%D1%81%D1%82%D1%8C%20%D1%84%D1%80%D0%B5%D0%B7%D0%B5%D1%80%D0%BE%D0%B2%D0%B0%D0%BD%D0%B8%D1%8F%20%D0%BF%D0%B8%D1%80%D0%BE%D0%BB%D0%B8%D0%B7%D0%B8%D1%82%D0%B0.md)
