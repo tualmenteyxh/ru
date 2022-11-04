@@ -260,4 +260,14 @@ Al Tayer Stocks United Arab Emirates (UAE) Operations.United Arab Emirates (UAE)
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=%D0%9F%D0%BE%D1%80%D1%82%D0%B0%D1%82%D0%B8%D0%B2%D0%BD%D1%8B%D0%B9+%D0%BF%D1%80%D0%BE%D0%B8%D0%B7%D0%B2%D0%BE%D0%B4%D0%B8%D1%82%D0%B5%D0%BB%D1%8C+%D0%B1%D0%B5%D1%82%D0%BE%D0%BD%D0%BD%D1%8B%D1%85+%D0%BC%D0%B0%D1%88%D0%B8%D0%BD+%D0%B2+uae)
 
-{{links}}
+* [Размер оборудования дробилки угля](../37/%D0%A0%D0%B0%D0%B7%D0%BC%D0%B5%D1%80%20%D0%BE%D0%B1%D0%BE%D1%80%D1%83%D0%B4%D0%BE%D0%B2%D0%B0%D0%BD%D0%B8%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8%20%D1%83%D0%B3%D0%BB%D1%8F.md)
+
+* [Является ли rock crusher supreme prime](../38/%D0%AF%D0%B2%D0%BB%D1%8F%D0%B5%D1%82%D1%81%D1%8F%20%D0%BB%D0%B8%20rock%20crusher%20supreme%20prime.md)
+
+* [Машина для измельчения железной руды](../36/%D0%9C%D0%B0%D1%88%D0%B8%D0%BD%D0%B0%20%D0%B4%D0%BB%D1%8F%20%D0%B8%D0%B7%D0%BC%D0%B5%D0%BB%D1%8C%D1%87%D0%B5%D0%BD%D0%B8%D1%8F%20%D0%B6%D0%B5%D0%BB%D0%B5%D0%B7%D0%BD%D0%BE%D0%B9%20%D1%80%D1%83%D0%B4%D1%8B.md)
+
+* [Желтый медный рудник crushe track plant](../37/%D0%96%D0%B5%D0%BB%D1%82%D1%8B%D0%B9%20%D0%BC%D0%B5%D0%B4%D0%BD%D1%8B%D0%B9%20%D1%80%D1%83%D0%B4%D0%BD%D0%B8%D0%BA%20crushe%20track%20plant.md)
+
+* [coalmine на бирже в Южной Африке](../38/coalmine%20%D0%BD%D0%B0%20%D0%B1%D0%B8%D1%80%D0%B6%D0%B5%20%D0%B2%20%D0%AE%D0%B6%D0%BD%D0%BE%D0%B9%20%D0%90%D1%84%D1%80%D0%B8%D0%BA%D0%B5.md)
+
+* [Применение рок-дробилки](../40/%D0%9F%D1%80%D0%B8%D0%BC%D0%B5%D0%BD%D0%B5%D0%BD%D0%B8%D0%B5%20%D1%80%D0%BE%D0%BA-%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8.md)

@@ -411,4 +411,14 @@ Shree cement acquires jaypee cement unit for rs 358 crorepr 27,2015 the acquisit
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=jaypee+cement+grinding+unit+panipat+area)
 
-{{links}}
+* [Машина для оливкового масла](../38/%D0%9C%D0%B0%D1%88%D0%B8%D0%BD%D0%B0%20%D0%B4%D0%BB%D1%8F%20%D0%BE%D0%BB%D0%B8%D0%B2%D0%BA%D0%BE%D0%B2%D0%BE%D0%B3%D0%BE%20%D0%BC%D0%B0%D1%81%D0%BB%D0%B0.md)
+
+* [Переработанный кирпич Мульч Кливленд](../37/%D0%9F%D0%B5%D1%80%D0%B5%D1%80%D0%B0%D0%B1%D0%BE%D1%82%D0%B0%D0%BD%D0%BD%D1%8B%D0%B9%20%D0%BA%D0%B8%D1%80%D0%BF%D0%B8%D1%87%20%D0%9C%D1%83%D0%BB%D1%8C%D1%87%20%D0%9A%D0%BB%D0%B8%D0%B2%D0%BB%D0%B5%D0%BD%D0%B4.md)
+
+* [Шлифовальный станок culatti Тип mfc cz 13 mfg](../40/%D0%A8%D0%BB%D0%B8%D1%84%D0%BE%D0%B2%D0%B0%D0%BB%D1%8C%D0%BD%D1%8B%D0%B9%20%D1%81%D1%82%D0%B0%D0%BD%D0%BE%D0%BA%20culatti%20%D0%A2%D0%B8%D0%BF%20mfc%20cz%2013%20mfg.md)
+
+* [Портативная дробилка Аренда Техас](../40/%D0%9F%D0%BE%D1%80%D1%82%D0%B0%D1%82%D0%B8%D0%B2%D0%BD%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20%D0%90%D1%80%D0%B5%D0%BD%D0%B4%D0%B0%20%D0%A2%D0%B5%D1%85%D0%B0%D1%81.md)
+
+* [Рок-дробилка you tube](../38/%D0%A0%D0%BE%D0%BA-%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20you%20tube.md)
+
+* [Как изготавливаются абразивы для шлака угля в Индии](../39/%D0%9A%D0%B0%D0%BA%20%D0%B8%D0%B7%D0%B3%D0%BE%D1%82%D0%B0%D0%B2%D0%BB%D0%B8%D0%B2%D0%B0%D1%8E%D1%82%D1%81%D1%8F%20%D0%B0%D0%B1%D1%80%D0%B0%D0%B7%D0%B8%D0%B2%D1%8B%20%D0%B4%D0%BB%D1%8F%20%D1%88%D0%BB%D0%B0%D0%BA%D0%B0%20%D1%83%D0%B3%D0%BB%D1%8F%20%D0%B2%20%D0%98%D0%BD%D0%B4%D0%B8%D0%B8.md)

@@ -411,4 +411,14 @@ PT.Delma Mining Corporation.Keahlian dan Rekomendasi Keahlian Bergabunglah denga
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=pt+delma+mining+corporation)
 
-{{links}}
+* [Китайское горно-обогатительное оборудование crusher india com](../37/%D0%9A%D0%B8%D1%82%D0%B0%D0%B9%D1%81%D0%BA%D0%BE%D0%B5%20%D0%B3%D0%BE%D1%80%D0%BD%D0%BE-%D0%BE%D0%B1%D0%BE%D0%B3%D0%B0%D1%82%D0%B8%D1%82%D0%B5%D0%BB%D1%8C%D0%BD%D0%BE%D0%B5%20%D0%BE%D0%B1%D0%BE%D1%80%D1%83%D0%B4%D0%BE%D0%B2%D0%B0%D0%BD%D0%B8%D0%B5%20crusher%20india%20com.md)
+
+* [crusher Модель 401xl 380v 3 50hz Поставщик в Индии](../38/crusher%20%D0%9C%D0%BE%D0%B4%D0%B5%D0%BB%D1%8C%20401xl%20380v%203%2050hz%20%D0%9F%D0%BE%D1%81%D1%82%D0%B0%D0%B2%D1%89%D0%B8%D0%BA%20%D0%B2%20%D0%98%D0%BD%D0%B4%D0%B8%D0%B8.md)
+
+* [Поставщик керамической машины для производства песка в Китае для продажи](../39/%D0%9F%D0%BE%D1%81%D1%82%D0%B0%D0%B2%D1%89%D0%B8%D0%BA%20%D0%BA%D0%B5%D1%80%D0%B0%D0%BC%D0%B8%D1%87%D0%B5%D1%81%D0%BA%D0%BE%D0%B9%20%D0%BC%D0%B0%D1%88%D0%B8%D0%BD%D1%8B%20%D0%B4%D0%BB%D1%8F%20%D0%BF%D1%80%D0%BE%D0%B8%D0%B7%D0%B2%D0%BE%D0%B4%D1%81%D1%82%D0%B2%D0%B0%20%D0%BF%D0%B5%D1%81%D0%BA%D0%B0%20%D0%B2%20%D0%9A%D0%B8%D1%82%D0%B0%D0%B5%20%D0%B4%D0%BB%D1%8F%20%D0%BF%D1%80%D0%BE%D0%B4%D0%B0%D0%B6%D0%B8.md)
+
+* [desinfeksi zat kimia dengan proses Шлифование](../39/desinfeksi%20zat%20kimia%20dengan%20proses%20%D0%A8%D0%BB%D0%B8%D1%84%D0%BE%D0%B2%D0%B0%D0%BD%D0%B8%D0%B5.md)
+
+* [К заводской дробилке tph](../40/%D0%9A%20%D0%B7%D0%B0%D0%B2%D0%BE%D0%B4%D1%81%D0%BA%D0%BE%D0%B9%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B5%20tph.md)
+
+* [Выставка sag mill](../39/%D0%92%D1%8B%D1%81%D1%82%D0%B0%D0%B2%D0%BA%D0%B0%20sag%20mill.md)

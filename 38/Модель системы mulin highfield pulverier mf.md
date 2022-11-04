@@ -141,4 +141,14 @@ Dedicatoria Dedicada con todo mi amor,respeto y admiración a mi madre Esperanza
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=%D0%9C%D0%BE%D0%B4%D0%B5%D0%BB%D1%8C+%D1%81%D0%B8%D1%81%D1%82%D0%B5%D0%BC%D1%8B+mulin+highfield+pulverier+mf)
 
-{{links}}
+* [dan macam macam crushernya fungsinya](../40/dan%20macam%20macam%20crushernya%20fungsinya.md)
+
+* [Конусная дробилка cs 75](../38/%D0%9A%D0%BE%D0%BD%D1%83%D1%81%D0%BD%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20cs%2075.md)
+
+* [Дробильная машина для выпуска ниже 2 мм](../38/%D0%94%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D1%8C%D0%BD%D0%B0%D1%8F%20%D0%BC%D0%B0%D1%88%D0%B8%D0%BD%D0%B0%20%D0%B4%D0%BB%D1%8F%20%D0%B2%D1%8B%D0%BF%D1%83%D1%81%D0%BA%D0%B0%20%D0%BD%D0%B8%D0%B6%D0%B5%202%20%D0%BC%D0%BC.md)
+
+* [Шлифовальный станок из Германии](../39/%D0%A8%D0%BB%D0%B8%D1%84%D0%BE%D0%B2%D0%B0%D0%BB%D1%8C%D0%BD%D1%8B%D0%B9%20%D1%81%D1%82%D0%B0%D0%BD%D0%BE%D0%BA%20%D0%B8%D0%B7%20%D0%93%D0%B5%D1%80%D0%BC%D0%B0%D0%BD%D0%B8%D0%B8.md)
+
+* [Медно-шлифовальный станок](../36/%D0%9C%D0%B5%D0%B4%D0%BD%D0%BE-%D1%88%D0%BB%D0%B8%D1%84%D0%BE%D0%B2%D0%B0%D0%BB%D1%8C%D0%BD%D1%8B%D0%B9%20%D1%81%D1%82%D0%B0%D0%BD%D0%BE%D0%BA.md)
+
+* [Используемое мобильное дробильное и шлифовальное оборудование](../38/%D0%98%D1%81%D0%BF%D0%BE%D0%BB%D1%8C%D0%B7%D1%83%D0%B5%D0%BC%D0%BE%D0%B5%20%D0%BC%D0%BE%D0%B1%D0%B8%D0%BB%D1%8C%D0%BD%D0%BE%D0%B5%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D1%8C%D0%BD%D0%BE%D0%B5%20%D0%B8%20%D1%88%D0%BB%D0%B8%D1%84%D0%BE%D0%B2%D0%B0%D0%BB%D1%8C%D0%BD%D0%BE%D0%B5%20%D0%BE%D0%B1%D0%BE%D1%80%D1%83%D0%B4%D0%BE%D0%B2%D0%B0%D0%BD%D0%B8%D0%B5.md)

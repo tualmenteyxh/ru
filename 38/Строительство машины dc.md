@@ -290,4 +290,14 @@ Douglas DC 8.однако серийное производство машины
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=%D0%A1%D1%82%D1%80%D0%BE%D0%B8%D1%82%D0%B5%D0%BB%D1%8C%D1%81%D1%82%D0%B2%D0%BE+%D0%BC%D0%B0%D1%88%D0%B8%D0%BD%D1%8B+dc)
 
-{{links}}
+* [pt united coal mining Бантуас Самаринда](../39/pt%20united%20coal%20mining%20%D0%91%D0%B0%D0%BD%D1%82%D1%83%D0%B0%D1%81%20%D0%A1%D0%B0%D0%BC%D0%B0%D1%80%D0%B8%D0%BD%D0%B4%D0%B0.md)
+
+* [kansahi mining plc](../38/kansahi%20mining%20plc.md)
+
+* [Дорожное оборудование для карьерных работ](../38/%D0%94%D0%BE%D1%80%D0%BE%D0%B6%D0%BD%D0%BE%D0%B5%20%D0%BE%D0%B1%D0%BE%D1%80%D1%83%D0%B4%D0%BE%D0%B2%D0%B0%D0%BD%D0%B8%D0%B5%20%D0%B4%D0%BB%D1%8F%20%D0%BA%D0%B0%D1%80%D1%8C%D0%B5%D1%80%D0%BD%D1%8B%D1%85%20%D1%80%D0%B0%D0%B1%D0%BE%D1%82.md)
+
+* [Добыча в Тринидаде и Тобаго](../38/%D0%94%D0%BE%D0%B1%D1%8B%D1%87%D0%B0%20%D0%B2%20%D0%A2%D1%80%D0%B8%D0%BD%D0%B8%D0%B4%D0%B0%D0%B4%D0%B5%20%D0%B8%20%D0%A2%D0%BE%D0%B1%D0%B0%D0%B3%D0%BE.md)
+
+* [rock crusher 3 ft standard Для продажи](../36/rock%20crusher%203%20ft%20standard%20%D0%94%D0%BB%D1%8F%20%D0%BF%D1%80%D0%BE%D0%B4%D0%B0%D0%B6%D0%B8.md)
+
+* [gambar pulverize coal burner](../38/gambar%20pulverize%20coal%20burner.md)

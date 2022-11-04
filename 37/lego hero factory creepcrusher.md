@@ -401,4 +401,14 @@ hero factory code YouTube.25 Feb 2012.My god your voice is annoying.plus﻿ the 
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=lego+hero+factory+creepcrusher)
 
-{{links}}
+* [Цены на новое гранитное оборудование](../36/%D0%A6%D0%B5%D0%BD%D1%8B%20%D0%BD%D0%B0%20%D0%BD%D0%BE%D0%B2%D0%BE%D0%B5%20%D0%B3%D1%80%D0%B0%D0%BD%D0%B8%D1%82%D0%BD%D0%BE%D0%B5%20%D0%BE%D0%B1%D0%BE%D1%80%D1%83%D0%B4%D0%BE%D0%B2%D0%B0%D0%BD%D0%B8%D0%B5.md)
+
+* [Двухвалковая дробилка](../36/%D0%94%D0%B2%D1%83%D1%85%D0%B2%D0%B0%D0%BB%D0%BA%D0%BE%D0%B2%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0.md)
+
+* [Завод по производству щебня в Индии](../38/%D0%97%D0%B0%D0%B2%D0%BE%D0%B4%20%D0%BF%D0%BE%20%D0%BF%D1%80%D0%BE%D0%B8%D0%B7%D0%B2%D0%BE%D0%B4%D1%81%D1%82%D0%B2%D1%83%20%D1%89%D0%B5%D0%B1%D0%BD%D1%8F%20%D0%B2%20%D0%98%D0%BD%D0%B4%D0%B8%D0%B8.md)
+
+* [Дробильная установка gambar untuk tambang baru bara](../39/%D0%94%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D1%8C%D0%BD%D0%B0%D1%8F%20%D1%83%D1%81%D1%82%D0%B0%D0%BD%D0%BE%D0%B2%D0%BA%D0%B0%20gambar%20untuk%20tambang%20baru%20bara.md)
+
+* [Шлифовка конусного колеса для гранита](../37/%D0%A8%D0%BB%D0%B8%D1%84%D0%BE%D0%B2%D0%BA%D0%B0%20%D0%BA%D0%BE%D0%BD%D1%83%D1%81%D0%BD%D0%BE%D0%B3%D0%BE%20%D0%BA%D0%BE%D0%BB%D0%B5%D1%81%D0%B0%20%D0%B4%D0%BB%D1%8F%20%D0%B3%D1%80%D0%B0%D0%BD%D0%B8%D1%82%D0%B0.md)
+
+* [Мобильные сортировочные установки для продажи в Африке](../37/%D0%9C%D0%BE%D0%B1%D0%B8%D0%BB%D1%8C%D0%BD%D1%8B%D0%B5%20%D1%81%D0%BE%D1%80%D1%82%D0%B8%D1%80%D0%BE%D0%B2%D0%BE%D1%87%D0%BD%D1%8B%D0%B5%20%D1%83%D1%81%D1%82%D0%B0%D0%BD%D0%BE%D0%B2%D0%BA%D0%B8%20%D0%B4%D0%BB%D1%8F%20%D0%BF%D1%80%D0%BE%D0%B4%D0%B0%D0%B6%D0%B8%20%D0%B2%20%D0%90%D1%84%D1%80%D0%B8%D0%BA%D0%B5.md)

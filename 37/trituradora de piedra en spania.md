@@ -411,4 +411,14 @@ JOYAL Trituradora de piedra,Grinding is the required process when size reduction
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=trituradora+de+piedra+en+spania)
 
-{{links}}
+* [Тип угля используемого в прокатной мельнице](../36/%D0%A2%D0%B8%D0%BF%20%D1%83%D0%B3%D0%BB%D1%8F%20%D0%B8%D1%81%D0%BF%D0%BE%D0%BB%D1%8C%D0%B7%D1%83%D0%B5%D0%BC%D0%BE%D0%B3%D0%BE%20%D0%B2%20%D0%BF%D1%80%D0%BE%D0%BA%D0%B0%D1%82%D0%BD%D0%BE%D0%B9%20%D0%BC%D0%B5%D0%BB%D1%8C%D0%BD%D0%B8%D1%86%D0%B5.md)
+
+* [kavs mining kitwe](../38/kavs%20mining%20kitwe.md)
+
+* [Сайяджи Дробилки Барода](../39/%D0%A1%D0%B0%D0%B9%D1%8F%D0%B4%D0%B6%D0%B8%20%D0%94%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8%20%D0%91%D0%B0%D1%80%D0%BE%D0%B4%D0%B0.md)
+
+* [Рулонная дробилка 60 Т  ч 2pgc600x](../38/%D0%A0%D1%83%D0%BB%D0%BE%D0%BD%D0%BD%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%2060%20%D0%A2%20%20%D1%87%202pgc600x.md)
+
+* [Распродажа по всему миру](../36/%D0%A0%D0%B0%D1%81%D0%BF%D1%80%D0%BE%D0%B4%D0%B0%D0%B6%D0%B0%20%D0%BF%D0%BE%20%D0%B2%D1%81%D0%B5%D0%BC%D1%83%20%D0%BC%D0%B8%D1%80%D1%83.md)
+
+* [Конвейерный ролик для добычи угля](../40/%D0%9A%D0%BE%D0%BD%D0%B2%D0%B5%D0%B9%D0%B5%D1%80%D0%BD%D1%8B%D0%B9%20%D1%80%D0%BE%D0%BB%D0%B8%D0%BA%20%D0%B4%D0%BB%D1%8F%20%D0%B4%D0%BE%D0%B1%D1%8B%D1%87%D0%B8%20%D1%83%D0%B3%D0%BB%D1%8F.md)

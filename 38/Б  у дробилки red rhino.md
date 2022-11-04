@@ -381,4 +381,14 @@ Red Rhino 5000 compact rubble recycler in action on Vimeo.red rhino 5000 series 
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=%D0%91+%2F+%D1%83+%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8+red+rhino)
 
-{{links}}
+* [Горное оборудование и их использование](../40/%D0%93%D0%BE%D1%80%D0%BD%D0%BE%D0%B5%20%D0%BE%D0%B1%D0%BE%D1%80%D1%83%D0%B4%D0%BE%D0%B2%D0%B0%D0%BD%D0%B8%D0%B5%20%D0%B8%20%D0%B8%D1%85%20%D0%B8%D1%81%D0%BF%D0%BE%D0%BB%D1%8C%D0%B7%D0%BE%D0%B2%D0%B0%D0%BD%D0%B8%D0%B5.md)
+
+* [Портативное оборудование для мойки лошадей](../40/%D0%9F%D0%BE%D1%80%D1%82%D0%B0%D1%82%D0%B8%D0%B2%D0%BD%D0%BE%D0%B5%20%D0%BE%D0%B1%D0%BE%D1%80%D1%83%D0%B4%D0%BE%D0%B2%D0%B0%D0%BD%D0%B8%D0%B5%20%D0%B4%D0%BB%D1%8F%20%D0%BC%D0%BE%D0%B9%D0%BA%D0%B8%20%D0%BB%D0%BE%D1%88%D0%B0%D0%B4%D0%B5%D0%B9.md)
+
+* [Дробилка в продаже nutley](../40/%D0%94%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20%D0%B2%20%D0%BF%D1%80%D0%BE%D0%B4%D0%B0%D0%B6%D0%B5%20nutley.md)
+
+* [Щековая дробилка merk aks type aps](../36/%D0%A9%D0%B5%D0%BA%D0%BE%D0%B2%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20merk%20aks%20type%20aps.md)
+
+* [Вооруженные силы США](../40/%D0%92%D0%BE%D0%BE%D1%80%D1%83%D0%B6%D0%B5%D0%BD%D0%BD%D1%8B%D0%B5%20%D1%81%D0%B8%D0%BB%D1%8B%20%D0%A1%D0%A8%D0%90.md)
+
+* [Портативная дробильная установка для дробилки Вьетнама](../37/%D0%9F%D0%BE%D1%80%D1%82%D0%B0%D1%82%D0%B8%D0%B2%D0%BD%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D1%8C%D0%BD%D0%B0%D1%8F%20%D1%83%D1%81%D1%82%D0%B0%D0%BD%D0%BE%D0%B2%D0%BA%D0%B0%20%D0%B4%D0%BB%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8%20%D0%92%D1%8C%D0%B5%D1%82%D0%BD%D0%B0%D0%BC%D0%B0.md)

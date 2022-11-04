@@ -350,4 +350,14 @@ Onlinetools provided by KTR Systems GmbH Rheine.This onlinetool is for selecting
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=%D0%92%D1%8B%D0%B4%D1%83%D0%B2%D0%BD%D0%BE%D0%B9+e+%D0%A2%D1%80%D1%83%D0%B1%D0%BD%D1%8B%D0%B9+%D0%BF%D0%BB%D0%B0%D1%81%D1%82%D0%B8%D0%BA+%D0%B4%D0%BB%D1%8F+%D0%BA%D0%B0%D0%BF%D0%B5%D0%BB%D1%8C%D0%BD%D0%BE%D0%B3%D0%BE+%D0%BE%D1%80%D0%BE%D1%88%D0%B5%D0%BD%D0%B8%D1%8F+%D1%88%D0%BB%D0%B0%D0%BD%D0%B3%D0%BE%D0%B2+%D0%9F%D1%80%D0%BE%D1%86%D0%B5%D1%81%D1%81+%D1%81%D0%B1%D0%BE%D1%80%D0%BA%D0%B8)
 
-{{links}}
+* [Поставщик запасных частей cummins в России](../37/%D0%9F%D0%BE%D1%81%D1%82%D0%B0%D0%B2%D1%89%D0%B8%D0%BA%20%D0%B7%D0%B0%D0%BF%D0%B0%D1%81%D0%BD%D1%8B%D1%85%20%D1%87%D0%B0%D1%81%D1%82%D0%B5%D0%B9%20cummins%20%D0%B2%20%D0%A0%D0%BE%D1%81%D1%81%D0%B8%D0%B8.md)
+
+* [allis chalmers 24 x 15 rock crusher](../36/allis%20chalmers%2024%20x%2015%20rock%20crusher.md)
+
+* [jual mesin crusher batu bekas](../39/jual%20mesin%20crusher%20batu%20bekas.md)
+
+* [Шаровая мельница для подготовки](../39/%D0%A8%D0%B0%D1%80%D0%BE%D0%B2%D0%B0%D1%8F%20%D0%BC%D0%B5%D0%BB%D1%8C%D0%BD%D0%B8%D1%86%D0%B0%20%D0%B4%D0%BB%D1%8F%20%D0%BF%D0%BE%D0%B4%D0%B3%D0%BE%D1%82%D0%BE%D0%B2%D0%BA%D0%B8.md)
+
+* [Первичная дробилка lafarge dundas](../40/%D0%9F%D0%B5%D1%80%D0%B2%D0%B8%D1%87%D0%BD%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20lafarge%20dundas.md)
+
+* [Микрохирургия ruishisaite](../40/%D0%9C%D0%B8%D0%BA%D1%80%D0%BE%D1%85%D0%B8%D1%80%D1%83%D1%80%D0%B3%D0%B8%D1%8F%20ruishisaite.md)

@@ -411,4 +411,14 @@ Jul 11,2014 · Getting fit and attractive has never been easier and safer! You 
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=%D0%96%D1%83%D1%80%D0%BD%D0%B0%D0%BB+%D1%80%D0%B0%D0%B1%D0%BE%D1%87%D0%B5%D0%B9+%D1%81%D0%B8%D0%BB%D1%8B+%D0%B8%D0%BB%D0%B8+%D0%B6%D1%83%D1%80%D0%BD%D0%B0%D0%BB%D0%B0+general+mills)
 
-{{links}}
+* [Дробильные машины из алюминия](../40/%D0%94%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D1%8C%D0%BD%D1%8B%D0%B5%20%D0%BC%D0%B0%D1%88%D0%B8%D0%BD%D1%8B%20%D0%B8%D0%B7%20%D0%B0%D0%BB%D1%8E%D0%BC%D0%B8%D0%BD%D0%B8%D1%8F.md)
+
+* [sbm балластные дробилки в Кении](../40/sbm%20%D0%B1%D0%B0%D0%BB%D0%BB%D0%B0%D1%81%D1%82%D0%BD%D1%8B%D0%B5%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8%20%D0%B2%20%D0%9A%D0%B5%D0%BD%D0%B8%D0%B8.md)
+
+* [contoh tambang quarry pasir](../39/contoh%20tambang%20quarry%20pasir.md)
+
+* [Стоимость оборудования для риса](../37/%D0%A1%D1%82%D0%BE%D0%B8%D0%BC%D0%BE%D1%81%D1%82%D1%8C%20%D0%BE%D0%B1%D0%BE%D1%80%D1%83%D0%B4%D0%BE%D0%B2%D0%B0%D0%BD%D0%B8%D1%8F%20%D0%B4%D0%BB%D1%8F%20%D1%80%D0%B8%D1%81%D0%B0.md)
+
+* [cau tao cua Щековая дробилка Сурабая](../39/cau%20tao%20cua%20%D0%A9%D0%B5%D0%BA%D0%BE%D0%B2%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20%D0%A1%D1%83%D1%80%D0%B0%D0%B1%D0%B0%D1%8F.md)
+
+* [Использование машины для отделения золота от камня](../39/%D0%98%D1%81%D0%BF%D0%BE%D0%BB%D1%8C%D0%B7%D0%BE%D0%B2%D0%B0%D0%BD%D0%B8%D0%B5%20%D0%BC%D0%B0%D1%88%D0%B8%D0%BD%D1%8B%20%D0%B4%D0%BB%D1%8F%20%D0%BE%D1%82%D0%B4%D0%B5%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F%20%D0%B7%D0%BE%D0%BB%D0%BE%D1%82%D0%B0%20%D0%BE%D1%82%20%D0%BA%D0%B0%D0%BC%D0%BD%D1%8F.md)

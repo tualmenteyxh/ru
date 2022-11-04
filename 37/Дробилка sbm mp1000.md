@@ -330,4 +330,14 @@ MP Series Archives CCP Casting.MP800 MP1000 MP1250 MP Series Cone Crushers Hoppe
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=%D0%94%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0+sbm+mp1000)
 
-{{links}}
+* [Макет завода по производству мазута tph](../39/%D0%9C%D0%B0%D0%BA%D0%B5%D1%82%20%D0%B7%D0%B0%D0%B2%D0%BE%D0%B4%D0%B0%20%D0%BF%D0%BE%20%D0%BF%D1%80%D0%BE%D0%B8%D0%B7%D0%B2%D0%BE%D0%B4%D1%81%D1%82%D0%B2%D1%83%20%D0%BC%D0%B0%D0%B7%D1%83%D1%82%D0%B0%20tph.md)
+
+* [Дробилка jenis cin](../39/%D0%94%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20jenis%20cin.md)
+
+* [Пневматические шлифмашины inger solrand](../38/%D0%9F%D0%BD%D0%B5%D0%B2%D0%BC%D0%B0%D1%82%D0%B8%D1%87%D0%B5%D1%81%D0%BA%D0%B8%D0%B5%20%D1%88%D0%BB%D0%B8%D1%84%D0%BC%D0%B0%D1%88%D0%B8%D0%BD%D1%8B%20inger%20solrand.md)
+
+* [Вертикальные фрезы](../38/%D0%92%D0%B5%D1%80%D1%82%D0%B8%D0%BA%D0%B0%D0%BB%D1%8C%D0%BD%D1%8B%D0%B5%20%D1%84%D1%80%D0%B5%D0%B7%D1%8B.md)
+
+* [Низкошумящая дробилка](../37/%D0%9D%D0%B8%D0%B7%D0%BA%D0%BE%D1%88%D1%83%D0%BC%D1%8F%D1%89%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0.md)
+
+* [Машина для пульверизатора для натрия bic](../40/%D0%9C%D0%B0%D1%88%D0%B8%D0%BD%D0%B0%20%D0%B4%D0%BB%D1%8F%20%D0%BF%D1%83%D0%BB%D1%8C%D0%B2%D0%B5%D1%80%D0%B8%D0%B7%D0%B0%D1%82%D0%BE%D1%80%D0%B0%20%D0%B4%D0%BB%D1%8F%20%D0%BD%D0%B0%D1%82%D1%80%D0%B8%D1%8F%20bic.md)

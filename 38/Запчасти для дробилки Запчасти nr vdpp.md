@@ -411,4 +411,14 @@ Jauns 7 sekciju hidrosadalītājs kombainam Ņiva,Rezerves daļas Nr.Га 34000 
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=%D0%97%D0%B0%D0%BF%D1%87%D0%B0%D1%81%D1%82%D0%B8+%D0%B4%D0%BB%D1%8F+%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B8+%D0%97%D0%B0%D0%BF%D1%87%D0%B0%D1%81%D1%82%D0%B8+nr+vdpp)
 
-{{links}}
+* [Цена x Щековая дробилка](../37/%D0%A6%D0%B5%D0%BD%D0%B0%20x%20%D0%A9%D0%B5%D0%BA%D0%BE%D0%B2%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0.md)
+
+* [Малые горнодобывающие предприятия в Африке](../37/%D0%9C%D0%B0%D0%BB%D1%8B%D0%B5%20%D0%B3%D0%BE%D1%80%D0%BD%D0%BE%D0%B4%D0%BE%D0%B1%D1%8B%D0%B2%D0%B0%D1%8E%D1%89%D0%B8%D0%B5%20%D0%BF%D1%80%D0%B5%D0%B4%D0%BF%D1%80%D0%B8%D1%8F%D1%82%D0%B8%D1%8F%20%D0%B2%20%D0%90%D1%84%D1%80%D0%B8%D0%BA%D0%B5.md)
+
+* [Мельница для известняка в Нигерии](../40/%D0%9C%D0%B5%D0%BB%D1%8C%D0%BD%D0%B8%D1%86%D0%B0%20%D0%B4%D0%BB%D1%8F%20%D0%B8%D0%B7%D0%B2%D0%B5%D1%81%D1%82%D0%BD%D1%8F%D0%BA%D0%B0%20%D0%B2%20%D0%9D%D0%B8%D0%B3%D0%B5%D1%80%D0%B8%D0%B8.md)
+
+* [Изготовитель розничной продажи песка в Тамилнаду](../39/%D0%98%D0%B7%D0%B3%D0%BE%D1%82%D0%BE%D0%B2%D0%B8%D1%82%D0%B5%D0%BB%D1%8C%20%D1%80%D0%BE%D0%B7%D0%BD%D0%B8%D1%87%D0%BD%D0%BE%D0%B9%20%D0%BF%D1%80%D0%BE%D0%B4%D0%B0%D0%B6%D0%B8%20%D0%BF%D0%B5%D1%81%D0%BA%D0%B0%20%D0%B2%20%D0%A2%D0%B0%D0%BC%D0%B8%D0%BB%D0%BD%D0%B0%D0%B4%D1%83.md)
+
+* [Подержанная Доломитовая щековая дробилка Продажа Ангола](../38/%D0%9F%D0%BE%D0%B4%D0%B5%D1%80%D0%B6%D0%B0%D0%BD%D0%BD%D0%B0%D1%8F%20%D0%94%D0%BE%D0%BB%D0%BE%D0%BC%D0%B8%D1%82%D0%BE%D0%B2%D0%B0%D1%8F%20%D1%89%D0%B5%D0%BA%D0%BE%D0%B2%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20%D0%9F%D1%80%D0%BE%D0%B4%D0%B0%D0%B6%D0%B0%20%D0%90%D0%BD%D0%B3%D0%BE%D0%BB%D0%B0.md)
+
+* [Горные шланги Южная Африка](../40/%D0%93%D0%BE%D1%80%D0%BD%D1%8B%D0%B5%20%D1%88%D0%BB%D0%B0%D0%BD%D0%B3%D0%B8%20%D0%AE%D0%B6%D0%BD%D0%B0%D1%8F%20%D0%90%D1%84%D1%80%D0%B8%D0%BA%D0%B0.md)

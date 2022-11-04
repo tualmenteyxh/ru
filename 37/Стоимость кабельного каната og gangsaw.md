@@ -350,4 +350,14 @@ CORTECO MAT.TIPO Int.Ext.1 Ext.2 Alt.1 Alt.2 FAMILIA FABRICANTE 12018546 FPM VA0
 
 **Форма запроса:** [https://form.shibang-china.com](https://form.shibang-china.com?n=gjl&l=ru&contact&k=%D0%A1%D1%82%D0%BE%D0%B8%D0%BC%D0%BE%D1%81%D1%82%D1%8C+%D0%BA%D0%B0%D0%B1%D0%B5%D0%BB%D1%8C%D0%BD%D0%BE%D0%B3%D0%BE+%D0%BA%D0%B0%D0%BD%D0%B0%D1%82%D0%B0+og+gangsaw)
 
-{{links}}
+* [Горный процесс из меди](../37/%D0%93%D0%BE%D1%80%D0%BD%D1%8B%D0%B9%20%D0%BF%D1%80%D0%BE%D1%86%D0%B5%D1%81%D1%81%20%D0%B8%D0%B7%20%D0%BC%D0%B5%D0%B4%D0%B8.md)
+
+* [Портативная дробилка для бутылок](../39/%D0%9F%D0%BE%D1%80%D1%82%D0%B0%D1%82%D0%B8%D0%B2%D0%BD%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20%D0%B4%D0%BB%D1%8F%20%D0%B1%D1%83%D1%82%D1%8B%D0%BB%D0%BE%D0%BA.md)
+
+* [Бангладеш jute mills corporation](../38/%D0%91%D0%B0%D0%BD%D0%B3%D0%BB%D0%B0%D0%B4%D0%B5%D1%88%20jute%20mills%20corporation.md)
+
+* [herramientas para mineria aluvial](../38/herramientas%20para%20mineria%20aluvial.md)
+
+* [Щековая дробилка в Шри-Ланке](../37/%D0%A9%D0%B5%D0%BA%D0%BE%D0%B2%D0%B0%D1%8F%20%D0%B4%D1%80%D0%BE%D0%B1%D0%B8%D0%BB%D0%BA%D0%B0%20%D0%B2%20%D0%A8%D1%80%D0%B8-%D0%9B%D0%B0%D0%BD%D0%BA%D0%B5.md)
+
+* [Тип гусеничного мобильного дробления для продажи](../40/%D0%A2%D0%B8%D0%BF%20%D0%B3%D1%83%D1%81%D0%B5%D0%BD%D0%B8%D1%87%D0%BD%D0%BE%D0%B3%D0%BE%20%D0%BC%D0%BE%D0%B1%D0%B8%D0%BB%D1%8C%D0%BD%D0%BE%D0%B3%D0%BE%20%D0%B4%D1%80%D0%BE%D0%B1%D0%BB%D0%B5%D0%BD%D0%B8%D1%8F%20%D0%B4%D0%BB%D1%8F%20%D0%BF%D1%80%D0%BE%D0%B4%D0%B0%D0%B6%D0%B8.md)
